@@ -5,7 +5,7 @@
 
 - 💬 me perguntar sobre **SQL, Power BI, Excel, Python e Hadoop**
 
-- 📫 Você me através do E-mail **matheusdasilvacd@gmail.com**
+- 📫 Você me encontra através do E-mail **matheusdasilvacd@gmail.com**
 
 - 📄 sou o próprio criador do perfil [https://www.linkedin.com/in/matheus-indefinido-ba077423b](https://www.linkedin.com/in/matheus-indefinido-ba077423b)
 
